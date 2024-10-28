@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @FrostDevKami
 - 👀 I’m interested in Coding, Video Editing, Graphic Design Etc.
 - 🌱 I’m currently learning everything I can, To be the best
-- 📫 How to reach me @nirajinde@gmail.com
+- 📫 How to reach me @nirajinde2@gmail.com
